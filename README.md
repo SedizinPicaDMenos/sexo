@@ -1,2 +1,0 @@
-# sexo
-about sex
